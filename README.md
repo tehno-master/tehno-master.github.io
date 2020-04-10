@@ -1,1 +1,0 @@
-# tehno-master.github.io
